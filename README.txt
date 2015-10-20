@@ -1,0 +1,1 @@
+I am creating a profile to showcase my work for potential employers
